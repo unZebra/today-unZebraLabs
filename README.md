@@ -1,5 +1,5 @@
 # today-unZebraLabs
-my a fucking day...maybe
+my a fucking day...maybe(it normal if this day is fucked up)
 
 #2026/2/27 is a fucking day
 
