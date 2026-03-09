@@ -20,3 +20,5 @@ my a fucking day...maybe(it normal if this day is fucked up)
 #2026/3/7 is a fucking day
 
 #2026/3/8 is a busy day (<_<)
+
+#2026/3/9 is a complete day
